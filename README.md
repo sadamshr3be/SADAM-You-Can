@@ -45,5 +45,5 @@ https://www.youtube.com/channel/UC6KWVWMUn210EJYDyUHQhKQ
 حسابي https://github.com/sadamshr3be
 حسابي @sadam_alsharabi
 الجروب @alsharabii ,   
-الموقع http://sadam-alsharabi.roo7.biz
+الموقع https://termuxalsharabi.blogspot.com
 https://t.me/termuxalsharabi
